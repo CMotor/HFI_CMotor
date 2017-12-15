@@ -2,6 +2,7 @@
 
 The high frequency injection method of motor starting and running
 
+https://item.taobao.com/item.htm?spm=0.7095261.0.0.7522b2dasnzvfc&id=562796729460&qq-pf-to=pcqq.c2c
 
 http://v.youku.com/v_show/id_XMjkxNDY2MTkyNA==.html?spm=a2hzp.8244740.0.0
 
